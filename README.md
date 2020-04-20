@@ -1,1 +1,0 @@
-# jfriedland.github.io
